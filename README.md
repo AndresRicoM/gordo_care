@@ -17,6 +17,13 @@ If any rash or bald spot appears, apply Barmicil on the spot once per day until 
 ## Eyes
 Put an eye drop in each eye once per day. Its best to put the drops when he is laying down and calm.
 
+<video autoplay loop muted>
+  <source src="assets/eye_drops.mp4" type="video/mp4">
+</video>
+
+## Ears
+Clean once per week. Use a cotton ball and ear cleaning solution.
+
 ## Play
 
 - Fetch 
