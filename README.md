@@ -74,6 +74,9 @@ Clean once per week. Use a cotton ball and ear cleaning solution.
 - Chase the ball
     - Ahow him tennis ball. Tease him with it but don't let him grab it.
 
+## Emergency
+- Something in his mouth that should not be there (food, metal objects, pointy objects, plastics)
+    - Distract him with a treat and grab the object while he goes for the treat. If he doesn't leave the object, look for a more interesting treat. In majot cases, you can put his food plate with a scoop of food and he will leave the object.
 
 ## Playful emergencies
 
