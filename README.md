@@ -75,13 +75,20 @@ Clean once per week. Use a cotton ball and ear cleaning solution.
     - Ahow him tennis ball. Tease him with it but don't let him grab it.
 
 ## Emergency
-- Something in his mouth that should not be there (food, metal objects, pointy objects, plastics)
+
+Vet:
+
+[East Boston Animal Hospital](https://maps.app.goo.gl/sZCyVmrTPPMHa7938)
+
++16175670101
+
+If something in his mouth that should not be there (food, metal objects, pointy objects, plastics)
     - Distract him with a treat and grab the object while he goes for the treat. If he doesn't leave the object, look for a more interesting treat. In majot cases, you can put his food plate with a scoop of food and he will leave the object.
 
 ## Playful emergencies
 
 ### Stealing Objects
-Aitor might grab a towel, shoe or other fun objects to play with you. If he grabs anything that he should not have grabbed, do not attempt to take it away from him. He can bite. Instead, distract him with a treat. You can oplace the treat one meter away and he will eventually leave the object and grab the treat. You can grab the object while he goes for the treat. 
+Aitor might grab a towel, shoe or other fun objects to play with you. If he grabs anything that he should not have grabbed, do not attempt to take it away from him. He can bite. Instead, distract him with a treat. You can place the treat one meter away and he will eventually leave the object and grab the treat. You can grab the object while he goes for the treat. 
 
 ### Barking at you while eating
 If he barks at you while sitting down, it might be a sign that he wants to play. You can refer to the three types of play that he likes. Playing for 10-15 will drain a lot of his energy and he'll go back to his bed. 
@@ -92,7 +99,7 @@ If he bites his bed and/or blanket. You can distract him and lay the blanket nic
 
 ## Bad Behavior
 
-### Continuouslu Barking at humans
+### Continuously Barking at humans
 You can play with him, give him treats and distract him. If he continues to bark, you can put him in his bed and cover him with his blanket. He will eventually go to sleep.
 
 ### Biting hands
